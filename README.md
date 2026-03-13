@@ -1,1 +1,0 @@
-we ARE charlie kirk.
